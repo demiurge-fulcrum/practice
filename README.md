@@ -1,2 +1,2 @@
-# practice
-Industrial practice
+253504 Дубовик А.П.
+Industrial practic
